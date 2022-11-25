@@ -1,0 +1,9 @@
+- 👋oi,eu me chamo rayane
+- sou geminiana
+- tenho 15 anos 
+- flamengista 
+- meu email é isthefanyrayane43@gmail.com
+- 👀 eu quero estudar veterinaria e agronomia ou gastronomia
+- 🌱 estou no 1 ano do ensino médio logo logo vou para o 2 ano
+- 💞️ instagram:rayane.isthefany_yt1
+- A vida é bela só pra quem tem coragem de viver!!!
